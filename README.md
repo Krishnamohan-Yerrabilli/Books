@@ -6,4 +6,4 @@
 
 Resources are added frequently! ✨
 
-Enjoy!
+Happy learning! :)
